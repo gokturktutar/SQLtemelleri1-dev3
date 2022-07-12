@@ -1,0 +1,1 @@
+# SQLtemelleri1-dev3
